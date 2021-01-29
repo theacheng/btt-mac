@@ -1,2 +1,2 @@
 ### Better Touch Tool Personal Usage
-![image](https://user-images.githubusercontent.com/29684683/106185952-2b29fe00-61d6-11eb-85fe-a80d4ece36d9.png)
+![image](https://user-images.githubusercontent.com/29684683/106304364-dba70900-628d-11eb-9fc5-f92b4d762c20.png)
